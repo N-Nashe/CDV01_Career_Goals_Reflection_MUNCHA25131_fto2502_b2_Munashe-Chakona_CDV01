@@ -81,12 +81,13 @@ In the next one to two years I wish to
 
 1. **Anticipated Challenges**:
     
-    - Identify potential obstacles or challenges in reaching your goals.
-    - Consider strategies to overcome these challenges.
+    - I believe my bad time managment, faliure to complete tasks often and consistently will be my only obstacle in this pusrusit realistically speaking I have seen what I can do when I put my mind to something I really want to happen hence I am my own enemy in my eyes to tell the truth
+    - I believe to overcome this I need to dive into this space I believe I need to obsess over it 24/7 the same way I did in high school with sport in order to become the best of the best and be included in a team of the best this is my goal I need not give up on this and rather hook myself to it and do it when I both want and don't want to to be there for the journey when it is hard and not hard this is in my eyes my truth
 2. **Opportunities for Growth**:
     
-    - Highlight any opportunities you can leverage for career growth.
-    - Include networking, mentorship, or educational opportunities.
+    - Codespace and this course as a whole is something I believe I can leverage towards career growth as it will allow me to be in the space the goal is to complete the course to the best of my ability in order to be hired to start my journey
+    - Include and involve my parents for my long term goals 3-5 years and hopefully not beyond that so I can financially be supported in my goals and courses, experiences I wish to complete and make
+    -My priveleges technologically, physically and mentally are also to be utilised whilst practically the last two do not make sense in a reflection like this for a proffessional school project that needs to be graded I often take for granted what I have I am sane, I have a laptop, I can type this very document with my hands these things offer me limtless opportunities to further my growth in my career and life to follow
 
 ### Submission
 
