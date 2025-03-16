@@ -66,12 +66,16 @@ In the next one to two years I wish to
 
 1. **Steps to Achieve Short-term Goals**:
     
-    - Detail specific actions or steps needed to achieve each short-term goal.
-    - Include any resources or support required.
+    - I need to keep learning new skills be it a new language or develop new projects this will only further my skillset and further catapult me to do the most and understand more when it comes to the tech space making my transition to hardware that much more easier
+    I need to research more about the role and really understand the description and requairements so as to also make it easier to transition and also understand if I really wish to do it or if it is not what I expect 
+    - I need to give myself a more hands on experience with hardware by reviewing hardware and possibly also taking short courses on it like this one assembly and dis-assembnly at home may help with further understanding the field of my own accord and training myself
+    - If I do not get a job financially I will need the resources to further my skills in not only the wider IT space but in Hardware for the courses and self-training I will endure and have to go through
+    - I will need to apply to Universities and jobs so as to allow myself to go in and get my qualifications hopefully in that space should I do University and if it is a job gain experience
 2. **Preparation for Long-term Goals**:
     
-    - Describe the preparations or groundwork necessary for your long-term aspirations.
-    - Consider additional skills, experiences, or qualifications needed.
+    - A degree and experience as well as acquisition of new skills will be necessary to acheiving my long term goals this is the groundwork that will need to be laid by me to end up saying I am a hardware engineer
+    - This in turn will alllow me to not only acquire a job I really want but also enable me financially to start laying down work for my company and goals of financial freedom to not only retire my parents but also make a difference to the lives of people all around Africa by using the resources South Africa has and can provide as one of the biggest economies on the continent to help  
+    - Whilst tech being a very big industry can help with this for me I will also need to learn skills in the financial sector and also the humanities sector to not onlyt understand charity for the people I want to help but money for the innovations in the field I wish to see happen like the "Convenient ATM"
 
 ### Part 5: Reflection on Challenges and Opportunities
 
